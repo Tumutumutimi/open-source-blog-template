@@ -1,0 +1,1 @@
+this is 100% copyable without credit(but you can add credit by optional)
